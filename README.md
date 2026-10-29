@@ -6,3 +6,8 @@ hiya /!! im frosty or i cud go by eve and any nicknames are appreciated and allo
 
 i tend to be awkward the first time i meet people but ill eventually develop. I have TONS of interest just ask for them!!
 i mostly hang by close friends or alone but i do love meeting new people dont be shy and feel free to interact with me!!
+
+
+
+
+adding more later !1!11!!
